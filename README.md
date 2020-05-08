@@ -1,2 +1,2 @@
 # dynasty.github.io
-website for self
+welcome to dynasty enjoy the best of websurfing
